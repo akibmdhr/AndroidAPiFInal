@@ -1,2 +1,2 @@
 # MusicAcademy
-here to learn about different instruments. 
+here to buy about different instruments. 
